@@ -1,0 +1,2 @@
+# bilgilerim
+BİLGİLERİM
